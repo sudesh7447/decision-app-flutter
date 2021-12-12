@@ -1,4 +1,4 @@
-# Destiny
+# Decision
 Ever stuck on a decision and need someone to decide?
 We are here to help.
 
